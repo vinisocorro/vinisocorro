@@ -10,7 +10,7 @@
 
 viniciusrenandefreitas14@gmail.com
 
-@vinienfj
+ig: @vinienfj
 
 
 ![](https://capricho.abril.com.br/wp-content/uploads/2018/10/gif-divertidamente.gif)

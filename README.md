@@ -1,10 +1,10 @@
 -  **✨Seja bem vindo ao meu perfil✨**
 
-- 👀 Meu nome é Vinícius
+- 👀 Meu nome é Vinícius🤪🙈
   
-- _Estou estudando na Alura_
-- _Estou me desenvolvendo na linguagem JavsCript_
-- _Utilizo esse espaço para a organização e compartilhamento dos meus projetos desenvolvidos_
+- _Estou estudando na Alura_🗣
+- _Estou me desenvolvendo na linguagem JavsCript_🗣
+- _Utilizo esse espaço para a organização e compartilhamento dos meus projetos desenvolvidos_🗣
 
 ## Você pode entrar em contato comigo: 📫 
 
